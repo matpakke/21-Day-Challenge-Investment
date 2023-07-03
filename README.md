@@ -12,6 +12,7 @@
 
 ทั้งหมดนี้ ฟรี!! ไม่มีค่าใช้จ่าย
 คลิก!! [https://www.setinvestnow.com/th/21day](https://www.setinvestnow.com/th/21day)
+
 <br />
 🔸Week ที่ 1 รู้เรื่องหุ้น – เริ่มต้นอย่างมั่นใจด้วย เนื้อหาพื้นฐานการลงทุน ครบ จบทุกประเด็น <br />
 🔸Week ที่ 2 เลือกหุ้นได้ – วิเคราะห์หุ้นอย่างมีหลักการ ลดความเสี่ยง เพิ่มโอกาสประสบความสำเร็จในการลงทุน <br />
@@ -35,3 +36,7 @@ Line (Official Account) : [https://line.me/R/ti/p/@setthailand](https://line.me/
 YouTube : [https://www.youtube.com/setthailand](https://www.youtube.com/setthailand)
 
 [![21-Day](https://i.ytimg.com/vi/0asjIunjjeA/maxresdefault.jpg)](https://www.youtube.com/watch?v=0asjIunjjeA)
+
+https://media.setinvestnow.com/setinvestnow/Documents/2021/Jul/TSI_eBook_028_Inv_%E0%B8%84%E0%B8%B9%E0%B9%88%E0%B8%A1%E0%B8%B7%E0%B8%AD21-DayChallenge.pdf
+
+[Week-1](https://media.setinvestnow.com/setinvestnow/Images/2022/Dec/21day-hero-banner-2022-w1.jpg)
